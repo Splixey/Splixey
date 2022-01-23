@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Splixey
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning LUA coding
+- 📫 How to reach me? Add me on discord; splixey#8825
